@@ -1,3 +1,3 @@
-# Welcome to my blog
+#Bine ai venit pe blogul Electro Performance!
 
-I'm glad you are here. I plan to talk about ...
+
